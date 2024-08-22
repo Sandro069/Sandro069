@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# bem vindo ao meu perfil (:
+# meu nome é Alessandro e eu estou trabalhando com o Alura, logo esse espaço provavelmente será usado apenas para expor meus trabalhos feitos (por pura e espontânea obrigação do governo)
+<no curso tinha uma opção para você entrar em contato comigo, mas não sou trouxa o suficiente e não vou fazer isso haha>
+
+! *homem chorando vulgo eu* (https://tenor.com/bDNM4.gif)
+
+se não funcionar, me perdoe, não sei utilizar muito e vá a bosta, pra que ler o perfil de um estudante todo irmão? cho, cho vai embora.
